@@ -1,4 +1,4 @@
-### Hi there, I'm Micha
+### Hi, My name is Micha
 
 #### About me
 - Birthday: 3 April
